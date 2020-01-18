@@ -1,2 +1,6 @@
 # Learning-github
-i'm actually learning git hub 
+my best color are!
+yellow
+green 
+black
+and that is all
